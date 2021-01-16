@@ -1,0 +1,1 @@
+# freddiemercury.github.io
